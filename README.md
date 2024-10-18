@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @Nabeelazam872
-- 👀 I’m interested in COding
+- 👋 Hi, I’m @Nabeelazam872 , 22 YO
+- 👀 I’m interested in Coding, Playing Guitar
 - 🌱 I’m currently learning Developing
 - 💞️ I’m looking to collaborate on Codes
 - 📫 How to reach me Use my Email
